@@ -6,6 +6,7 @@ I work at The [The S.C.R.I.P.T group](https://thescriptgroup.in), helping each o
 We are a community who help other students in learning new technologies by conducting various workshops for free. It's exciting stuff!
 
 Creating beautiful custom rice with various WM is my hobby.
+
 Trying to upskill constantly and yet to learn and explore a lot of things.
 
 I like eating and binging shows and web series!
